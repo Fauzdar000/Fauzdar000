@@ -3,7 +3,7 @@
 
 
 📚 Love reading manga in free time  
-🎮 Gamer: Clash of Clans (TH17)
+🎮 Gamer: Clash of Clans , Hay Day 
 
 
 🔥 Skills & Tools
