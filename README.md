@@ -1,9 +1,9 @@
-# 👋 Hi, I'm Hiro  
+# 👋 Hi, I'm Sugam  
 
 
 
 📚 Love reading manga in free time  
-🎮 Gamer: Clash of Clans , Hay Day 
+
 
 
 🔥 Skills & Tools
